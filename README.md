@@ -1,0 +1,1 @@
+hello! i'm quinn (@quinnathyy) and i'm a data journalist with a soft spot for UI who does fun little things on the side. you can find me on my personal website qsental.com, or on twitter (@darkerintheday)!
